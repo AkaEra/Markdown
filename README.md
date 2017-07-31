@@ -1,3 +1,3 @@
 # Xiaoshujiang
 Xiaoshujiang Markdown
-![](http://ss1.sinaimg.cn/large/7a28dffagy1fi389hazg2j20sg0lc0wa.jpg)
+![](http://ww3.sinaimg.cn/large/99b8535cjw1f306jse5g7j215n0jj444.jpg)
